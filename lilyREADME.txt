@@ -1,0 +1,1 @@
+lily, i miss you for the days you are gone, the days you are not and are. you feel like the person i talk to when i feel sad happy or sad, it is playing out like the episode gone, where i cant go talk to anyone as you are the main person besides liam, that i talk to you alot. i will always be here for you, even if you arent. (and dont take it in a creepy way)
